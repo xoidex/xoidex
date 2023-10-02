@@ -1,5 +1,5 @@
 hello! im xoidex.<br/>
-my natrual habitiats include:
-discord (xoidex)
-minecraft (discord)
-   mc.diamondfire.com
+my natrual habitiats include:<br/>
+discord (xoidex)<br/>
+minecraft (discord)<br/>
+   mc.diamondfire.com<br/>
